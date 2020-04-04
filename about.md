@@ -1,4 +1,4 @@
-this is me 
+This is me 
 
-i am a youtuber. i play soccer.
-Back to Home](/)
+I am a youtuber. I play soccer.
+[Back to Home](/)
