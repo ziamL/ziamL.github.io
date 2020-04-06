@@ -6,4 +6,4 @@ If you want to subscribe to our channel at the homepage click on Soccer twin bro
 visit this website to create your own music https://www.noteflight.com/scores/view/028e6da9a55387158270f4a348036abb983c9b0a
 I created my own music and i hope you do to
 please subscribe to are channel.
-And also look and like all are videos. 
+And also look at all are videos and like all are videos. 
